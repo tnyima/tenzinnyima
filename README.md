@@ -1,1 +1,1 @@
-# tnyima.github.io
+# Tenzin Nyima
